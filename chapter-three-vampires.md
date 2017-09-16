@@ -1,10 +1,10 @@
-## Clans
+# Chapter three: Vampires
 
-### Brujah
+## Brujah
 
 Given the current understanding between the Camarilla and the Sabbat, a very large amount of athenian vampires are actually Brujah.
 
-#### Athena
+### Athena
 
 #### ???
 

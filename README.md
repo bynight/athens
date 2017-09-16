@@ -18,6 +18,9 @@ Gangrel are rare, but they do form a very small minority in the suburbs of Athen
 
 ### Malkavian
 
-Malkavians are 
+Malkavians are
 
 #### Plato & Socrates
+
+
+

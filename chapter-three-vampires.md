@@ -10,6 +10,14 @@ Given the current understanding between the Camarilla and the Sabbat, a very lar
 
 ### Athena
 
+4th generation Brujah
+
+The ancient greek goddess of wisdom, craft and war, Athena is the patron of the city of Athens. In ancient times, scholars argued whether Athena was named after Athens or Athens after Athena; now scholars generally agree that the goddess takes her name from the city.
+
+Athena was venerated as the goddess of the city and the protectress of the citadel. Her power has waned a lot since the ancient times, but she still controls a large part of the city, as the de facto leader of the Brujah clan.
+
+Athena is rarely ever seen in person, even by those closest to her, but her level of animalism is so high that she operates a large spy ring via her sacred bird, owls.
+
 #### ???
 
 An [alastor](http://whitewolf.wikia.com/wiki/Alastor).

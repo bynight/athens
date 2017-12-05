@@ -18,6 +18,8 @@ Athena was venerated as the goddess of the city and the protectress of the citad
 
 Athena is rarely ever seen in person, even by those closest to her, but her level of animalism is so high that she operates a large spy ring via her sacred bird, owls.
 
+Athena has a large number of followers in the anarchist movement. The infamous signature of anarchists on the walls of Athens, mostly after a small message, actually refers to Athena.
+
 #### ???
 
 An [alastor](http://whitewolf.wikia.com/wiki/Alastor).
@@ -32,7 +34,7 @@ Malkavians are
 
 #### Plato & Socrates
 
-## Clan Lasombra 
+## Clan Lasombra
 
 ### The "Athenian"
 
